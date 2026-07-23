@@ -1,2 +1,4 @@
-<img width="1000" height="1000" alt="image" src="https://github.com/user-attachments/assets/345ccaba-6a6a-41d8-a0ac-ed27c3f56bda" />
-♡  ⌣  ꒰ i dunno what to put here..   ꒱ ⌣  ♡
+<img width="999" height="786" alt="image" src="https://github.com/user-attachments/assets/9442a66f-e185-4189-afe4-e87a43a76706" />
+
+  
+  ♡  ⌣  ꒰ i dunno what to put here..   ꒱ ⌣  ♡
